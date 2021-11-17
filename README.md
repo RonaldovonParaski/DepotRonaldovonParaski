@@ -1,2 +1,2 @@
 # DepotDeRonaldovonParaski
- Depot de Programas Ronaldo von Paraski
+ Depot de Programas - Ronaldo von Paraski
